@@ -1,0 +1,1 @@
+![herzog-de-meuron-ai-weiwei-hansel-gretel-park-avenue-armory-surveillance-new-york-designboom-1800 - crop](https://github.com/mechaneyes/imaging-raw-materials/assets/46533657/ec4905d2-fa4b-4f23-b949-3045820e85ca)
